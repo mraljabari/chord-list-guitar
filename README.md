@@ -25,3 +25,4 @@
 
 
 <br><hr>
+# Akan diupdate berkala
